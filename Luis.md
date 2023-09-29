@@ -1,1 +1,1 @@
-My favorite day is thursday
+My favorite day is thursday!
