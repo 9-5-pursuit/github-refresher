@@ -1,2 +1,2 @@
 This is me.
-My favorite day of the week is Friday.
+My favorite day of the week is Friday!
