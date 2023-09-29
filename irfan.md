@@ -1,1 +1,1 @@
-My favorite day is Blame Someone Else Day
+My favorite day is Blame Someone Else Day!
